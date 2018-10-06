@@ -2,7 +2,7 @@
 title: About
 ---
 
-Cause nothing shine as [Eternal Sunshine](https://eternal-sunshine.pl/), of the spotless mind
+Cause nothing shine like [Eternal Sunshine](https://eternal-sunshine.pl/), of the Spotless Mind
 
 ### Features:
 
