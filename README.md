@@ -1,14 +1,14 @@
-# HeroBlog
+# Eternal Sunshine
 
 A [GatsbyJS](https://www.gatsbyjs.org/) blog starter. <br /><br />
 
-[![GitHub tag](https://img.shields.io/github/tag/greglobinski/gatsby-starter-hero-blog.svg)](https://github.com/greglobinski/gatsby-starter-personal-blog)
-[![GitHub stars](https://img.shields.io/github/stars/greglobinski/gatsby-starter-hero-blog.svg)](https://github.com/greglobinski/gatsby-starter-personal-blog/stargazers)
-[![GitHub license](https://img.shields.io/github/license/greglobinski/gatsby-starter-hero-blog.svg)](https://github.com/greglobinski/gatsby-starter-personal-blog/blob/master/LICENSE)
+[![GitHub tag](https://img.shields.io/github/tag/oskar.dudycz/gatsby-starter-hero-blog.svg)](https://github.com/oskar.dudycz/gatsby-starter-personal-blog)
+[![GitHub stars](https://img.shields.io/github/stars/oskar.dudycz/gatsby-starter-hero-blog.svg)](https://github.com/oskar.dudycz/gatsby-starter-personal-blog/stargazers)
+[![GitHub license](https://img.shields.io/github/license/oskar.dudycz/gatsby-starter-hero-blog.svg)](https://github.com/oskar.dudycz/gatsby-starter-personal-blog/blob/master/LICENSE)
 [![code style: prettier](https://img.shields.io/badge/code_style-prettier-ff69b4.svg?style=flat-square)](https://github.com/prettier/prettier)
-![GitHub contributors](https://img.shields.io/github/contributors/greglobinski/gatsby-starter-hero-blog.svg)
+![GitHub contributors](https://img.shields.io/github/contributors/oskar.dudycz/gatsby-starter-hero-blog.svg)
 [![PRs Welcome](https://img.shields.io/badge/PRs-welcome-brightgreen.svg?style=flat-square)](http://makeapullrequest.com)
-[![Twitter](https://img.shields.io/twitter/url/https/github.com/greglobinski/gatsby-starter-hero-blog.svg?style=social)](https://twitter.com/intent/tweet?text=Wow:&url=https%3A%2F%2Fgithub.com%2Fgreglobinski%2Fgatsby-starter-hero-blog)
+[![Twitter](https://img.shields.io/twitter/url/https/github.com/oskar.dudycz/gatsby-starter-hero-blog.svg?style=social)](https://twitter.com/intent/tweet?text=Wow:&url=https%3A%2F%2Fgithub.com%2Foskar.dudycz%2Fgatsby-starter-hero-blog)
 
   <br />
 
@@ -16,13 +16,13 @@ A [GatsbyJS](https://www.gatsbyjs.org/) blog starter. <br /><br />
 
   <br />
 
-See the starter in action » [demo website](https://gatsby-starter-hero-blog.greglobinski.com/) <br />For more information visit » [dev.greglobinski.com/gatsby-starter-hero-blog](https://dev.greglobinski.com/gatsby-starter-hero-blog/)
+See the starter in action » [demo website](https://gatsby-starter-hero-blog.oskar.dudycz.com/) <br />For more information visit » [dev.oskar.dudycz.com/gatsby-starter-hero-blog](https://dev.oskar.dudycz.com/gatsby-starter-hero-blog/)
 
 ## Description
 
 A ready to use, easy to customize 'like theme' starter with a 'Hero' section on the home page.
 
-The starter was initialy built for Gatsby v1. Now, thanks to [@mohsenkhanpour](https://github.com/mohsenkhanpour) it's [upgraded](https://github.com/greglobinski/gatsby-starter-hero-blog/issues/32) to Gatsby v2. Thank you Mohsen :)
+The starter was initialy built for Gatsby v1. Now, thanks to [@mohsenkhanpour](https://github.com/mohsenkhanpour) it's [upgraded](https://github.com/oskar.dudycz/gatsby-starter-hero-blog/issues/32) to Gatsby v2. Thank you Mohsen :)
 
 The original version of the starter is preserved as the branch `gatsby-v1`.
 
@@ -64,7 +64,7 @@ More information on [GatsbyJS.org](https://www.gatsbyjs.org/tutorial/part-one)
 Install the starter using Gatsby Cli `gatsby new` command.
 
 ```text
-gatsby new [NEW_SITE_DIRECTORY_FOR_YOUR_BLOG] https://github.com/greglobinski/gatsby-starter-hero-blog.git
+gatsby new [NEW_SITE_DIRECTORY_FOR_YOUR_BLOG] https://github.com/oskar.dudycz/gatsby-starter-hero-blog.git
 ```
 
 Go into the newly created directory and run
@@ -99,9 +99,9 @@ FB_APP_ID=...
 
 ### Instructions & tutorials
 
-- [How to install, setup and add new content to a Blog starter](https://dev.greglobinski.com/install-blog-starter/)
-- [Setup Algolia account for your GatsbyJS blog](https://dev.greglobinski.com/setup-algolia-account/)
-- More articles at [Front-end web development with Greg](https://dev.greglobinski.com/)
+- [How to install, setup and add new content to a Blog starter](https://dev.oskar.dudycz.com/install-blog-starter/)
+- [Setup Algolia account for your GatsbyJS blog](https://dev.oskar.dudycz.com/setup-algolia-account/)
+- More articles at [Front-end web development with Greg](https://dev.oskar.dudycz.com/)
 
 ## Windows users
 
@@ -109,9 +109,9 @@ You should take a look at this: [Gatsby on Windows](https://www.gatsbyjs.org/doc
 
 ## Authors
 
-- Greg Lobinski [@greglobinski](https://github.com/greglobinski)
+- oskar dudycz [@oskar.dudycz](https://github.com/oskar.dudycz)
 
-See also the list of [contributors](https://github.com/greglobinski/gatsby-starter-personal-blog/graphs/contributors) who participated in this project.
+See also the list of [contributors](https://github.com/oskar.dudycz/gatsby-starter-personal-blog/graphs/contributors) who participated in this project.
 
 ## Contributing
 
@@ -125,7 +125,7 @@ See also the list of [contributors](https://github.com/greglobinski/gatsby-start
 
 MIT License
 
-Copyright (c) 2017 gatsbyjs <br />Copyright (c) 2018 greg lobinski
+Copyright (c) 2017 gatsbyjs <br />Copyright (c) 2018 oskar dudycz
 
 Permission is hereby granted, free of charge, to any person obtaining a copy of this software and associated documentation files (the "Software"), to deal in the Software without restriction, including without limitation the rights to use, copy, modify, merge, publish, distribute, sublicense, and/or sell
 copies of the Software, and to permit persons to whom the Software is furnished to do so, subject to the following conditions:
