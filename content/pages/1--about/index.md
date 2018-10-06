@@ -2,7 +2,7 @@
 title: About
 ---
 
-This is a demo site of the [Eternal Sunshine](https://github.com/oskar.dudycz/gatsby-starter-hero-blog), a [GatsbyJS](https://www.gatsbyjs.org/) starter.
+Cause nothing shine as [Eternal Sunshine](https://eternal-sunshine.pl/), of the spotless mind
 
 ### Features:
 
