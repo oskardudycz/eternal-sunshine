@@ -9,15 +9,9 @@ const Hero = props => {
   return (
     <React.Fragment>
       <section className="hero">
-        <h2>
-          Cause nothing shines as the 
-        </h2>
         <h1>
-           <strong>Eternal Sunshine</strong>
+          <strong>Eternal Sunshine</strong>
         </h1>
-        <h2>
-          of the Spotless Mind
-        </h2>
         <button onClick={scrollToContent} aria-label="scroll">
           <FaArrowDown />
         </button>
@@ -40,7 +34,7 @@ const Hero = props => {
           padding-top: ${theme.header.height.homepage};
         }
 
-        h1, h2 {
+        h1 {
           text-align: center;
           font-size: ${theme.hero.h1.size};
           margin: ${theme.space.stack.l};
@@ -63,10 +57,6 @@ const Hero = props => {
               margin: 0 0 0 ${theme.space.xs};
             }
           }
-        }
-
-        h2 {
-          font-size: ${theme.hero.h2.size};
         }
 
         button {
