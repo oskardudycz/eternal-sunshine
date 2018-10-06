@@ -10,7 +10,7 @@ const Hero = props => {
     <React.Fragment>
       <section className="hero">
         <h1>
-          This is a demo site of&nbsp;the <strong>Eternal Sunshine</strong> GatsbyJS starter
+          Cause nothing shines as the <strong>Eternal Sunshine</strong> of the Spotless Mind
         </h1>
         <button onClick={scrollToContent} aria-label="scroll">
           <FaArrowDown />
