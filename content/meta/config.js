@@ -10,8 +10,8 @@ module.exports = {
   authorName: "Oskar Dudycz",
   authorTwitterAccount: "oskar_at_net",
   // info
-  headerTitle: "oskar dudycz",
-  headerSubTitle: "presents another one GatsbyJS starter",
+  headerTitle: "Eternal Sunshine",
+  headerSubTitle: "zapiski dnia (nie)codziennego",
   // manifest.json
   manifestName: "Eternal Sunshine",
   manifestShortName: "ESunshine", // max 12 characters
