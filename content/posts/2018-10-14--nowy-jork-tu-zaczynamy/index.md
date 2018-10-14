@@ -7,7 +7,7 @@ author: oskar dudycz
 
 ## Prolog
 
-Jest 22:06 czasu nowojorskiego, 4:06 czasu polskiego. Tutaj zaczynamy. Naszą podróż i relację z niej. Dzisiaj jest dokonaliśmy kilku pierwszych razów. Pierwszy raz cofaliśmy się w czasie, pierwszy raz byliśmy na Ukrainie, pierwszy raz przelecieliśmy Atlantyk. Po to by pierwszy raz być tutaj - w Empire State of mind. 22:10 pierwszy raz piszę wpis na naszym blogu. Adam Romański miał bardzo fajny tytuł swojego bloga - "piszę, bo zapominam". No i ja też dlatego piszę. Bo zapominam. By nie zapomnieć.
+Jest 22:06 czasu nowojorskiego, 4:06 czasu polskiego. Tutaj zaczynamy. Naszą podróż i relację z niej. Dzisiaj dokonaliśmy kilku pierwszych razów. Pierwszy raz cofaliśmy się w czasie, pierwszy raz byliśmy na Ukrainie, pierwszy raz przelecieliśmy Atlantyk. No i pierwszy raz jesteśmy tutaj w Empire State of mind. 22:10 pierwszy raz piszę wpis na naszym blogu. Adam Romański miał bardzo fajny tytuł swojego bloga - "piszę, bo zapominam". No i ja też dlatego piszę. Bo zapominam. By nie zapomnieć.
 
 ## No dobra. O paru rzeczach bym chciał zapomnieć
 
