@@ -1,6 +1,6 @@
 ---
 title: Nowy Jork, czyli tutaj zaczynamy
-category: "testowa"
+category: "Nowy Jork"
 cover: IMG_4073.JPG
 author: oskar dudycz
 ---
