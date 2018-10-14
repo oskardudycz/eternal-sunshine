@@ -51,7 +51,7 @@ O przejściu wieczorem Mostem Brooklińskim.
 
 O tym, że warto upewnić się czy się idzie we właściwą stronę. Właściwa strona to zwykle przeciwna do tego, w którą stronę idę.
 
-![strona](STRONA.JPG)
+![strona](STRONA.jpg)
 
 O tym, że nawet mając jeden plecak na plecach, a drugi na brzuchu jest nieźle. Nawet bardzo.
 
