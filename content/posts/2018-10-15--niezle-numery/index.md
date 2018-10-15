@@ -1,14 +1,14 @@
 ---
 title: Niezłe Numery
 category: "Nowy Jork"
-cover: IMG_4073.JPG
+cover: centralpark3.JPG
 author: oskar dudycz
 ---
 
-Nie jestem osobą najlepszą w pamiętaniu numerów. Daty, terminy, liczby nie jest to nad czym jestem w stanie zapanować. Jednakże, Ulicę Sezamkową zawsze sponsorowały numery. Oto i one:
+Nie jestem osobą najlepszą w pamiętaniu numerów. Daty, terminy, liczby nie jest to coś nad czym jestem w stanie zapanować. Jednakże, Ulicę Sezamkową zawsze sponsorowały numery. Oto i one:
 
 ## 1
-Jak pierwsy doughnut, pierwszy burger zjedzony w stanach. Pączek miał wszystko co trzeba, dziurkę w środku, polewę na wierzchu oraz posypkę, był nieco pulchniejszy od naszych, no i wiadomo słodziutenki. Ogólnie pączek jak pączek - wrocławska trumienka i tak rządzi! Burger przypominał na pierwszy rzut oka McDonaldsowego, ale w smaku był świetny, bardzo dobra karmelizowana cebulka i mięso. Mniam.
+Jak pierwszy doughnut, pierwszy burger zjedzony w stanach. Pączek miał wszystko co trzeba, dziurkę w środku, polewę na wierzchu oraz posypkę, był nieco pulchniejszy od naszych, no i wiadomo słodziutenki. Ogólnie pączek jak pączek - wrocławska trumienka i tak rządzi! Burger przypominał na pierwszy rzut oka McDonaldsowego, ale w smaku był świetny, bardzo dobra karmelizowana cebulka i mięso. Mniam.
 
 ![doughnut](doughnut.jpg)
 ![burger](burger.jpg)
@@ -43,7 +43,7 @@ Central Park i ogólnie Nowy Jork jest świetny. Niesamowicie jest się móc prz
 ![centralpark2](centralpark2.JPG)
 ![centralpark3](centralpark3.JPG)
 
-Mnóstwo ludzi, zielen, spacerowicze, równie duże i ładne parki widziałem chyba tylko w Londynie. Jedyne co mnie zastanawia to czy naprawdę wiosłowanie po jeziorze jak filmach, razem z kilkudziesięcioma innymi parami robiącymi to samo jest faktycznie takie romantyczne? Ja tam się nie znam.
+Mnóstwo ludzi, zielen, spacerowicze, równie duże i ładne parki widziałem chyba tylko w Londynie. Jedyne co mnie zastanawia to czy naprawdę wiosłowanie po jeziorze jak w filmach, razem z kilkudziesięcioma innymi parami robiącymi to samo jest faktycznie takie romantyczne? Ja tam się nie znam.
 
 ![centralpark4](centralpark4.JPG)
 
@@ -69,7 +69,7 @@ O tej porze roku w Nowym Jorku słonce zachodzi około godziny 18:16. Dla pewno�
 ![timessquare3](timessquare3.JPG)
 
 ## 67
-Jest o numer piętra, na którym znajduje, a właściwie znajduje się punkt widokowy na Top of The Rock. Czyli sam szczyt Rockefeller Center. Sam szczyt stolicy świata. W zasadzie to powinienem napisać 67-69. Wysiada się na 67, następnie wchodzi się piętro wyżej a potem piętro wyżej. Doskonale widać panoramę całego Manhattanu. Mógłbym jeszcze dodać 360. Wjechaliśmy tam tuż przed zachodem słoca i był to najlepszy możliwy wybór. Widzieliśmy jak miasto gaśnie by ponownie się zapalić. Piękny widok na Empire State Building. Cena niezła bo 36 dolców, od osoby, ale można siedzieć ile się chce. Szczególnie polecam parapety okienne, można sobie siedzieć, delektować się, nikt z obsługi nie wygania. Co najwyżej japonscy turyści uważający, że okno jest wspólne. Może i jest, ale wtedy było nasze prywatne. Polecam też posłuchać co wyczyniają ludzie z obsługi kierujący ruchem ludzkim. Śpiewają, rymują, rapują udają Pac Mana, wszystko z dużym uśmiechem. Cóż, jakoś trzeba sobie radzić w pracy.
+Jest to numer piętra, na którym znajduje się punkt widokowy Top of The Rock. Czyli sam szczyt Rockefeller Center. Sam szczyt stolicy świata. W zasadzie to powinienem napisać 67-69. Wysiada się na 67, następnie wchodzi się piętro wyżej a potem piętro wyżej. Doskonale widać panoramę całego Manhattanu. Mógłbym jeszcze dodać 360. Wjechaliśmy tam tuż przed zachodem słoca i był to najlepszy możliwy wybór. Widzieliśmy jak miasto gaśnie by ponownie się zapalić. Piękny widok na Empire State Building. Cena niezła bo 36 dolców, od osoby, ale można siedzieć ile się chce. Szczególnie polecam parapety okienne, można sobie siedzieć, delektować się, nikt z obsługi nie wygania. Co najwyżej japonscy turyści uważający, że okno jest wspólne. Może i jest, ale wtedy było nasze prywatne. Polecam też posłuchać co wyczyniają ludzie z obsługi kierujący ruchem ludzkim. Śpiewają, rymują, rapują udają Pac Mana, wszystko z dużym uśmiechem. Cóż, jakoś trzeba sobie radzić w pracy.
 
 ![topoftherock1](topoftherock1.JPG)
 ![topoftherock2](topoftherock2.JPG)
