@@ -41,6 +41,6 @@ Idąc w stronę metra, niechcący gubiąc się lekko doszliśmy ponownie do **Ch
 
 Tym samym domknęliśmy tą samą klamrą nasz dzien co poprzedni. 
 
-Także mój drogi czytelniku. Niezależnie czy jesteś dynamicznym japiszonem, modnym i stylowym miłośnikiem mody, hipsterem kochającym sojowe mleko i esencjonalną kawę, spokój wieczorową porą w eleganckiej dzielnicy - w Nowy Jorku znajdziesz miejsce dla siebie. I to nie wychodząc nawet z południowo-zachodniego Manhattanu.
+Także mój drogi czytelniku. Niezależnie czy jesteś dynamicznym biznesmenem, modnym i stylowym miłośnikiem mody, hipsterem kochającym sojowe mleko i esencjonalną kawę, spokój wieczorową porą w eleganckiej dzielnicy - w Nowy Jorku znajdziesz miejsce dla siebie. I to nie wychodząc nawet z południowo-zachodniego Manhattanu.
 
 p.s. zdjęcia znowu wieczorem. Naszym wieczorem.
