@@ -5,39 +5,79 @@ cover: cover.JPG
 author: oskar dudycz
 ---
 
-![front](front.JPG)
+![front](cover.JPG)
 
 Nowy Jork jest olbrzymi. Kawał miasta. Tak naprawdę będąc tutaj ledwo zdążymy obejrzeć Manhattan (i to nie cały) i nieco Brooklynu. Przy tej swojej wielkomiejskości ma wiele odcieni. Różną energię, dynamikę, atmosferę. Wczoraj tego dobitnie doświadczyliśmy. 
 
+![front](IMG_E4326.JPG)
+![front](IMG_E4342.JPG)
+
 Dzien zaczęliśmy ponownie w porcie. Tak jak wspominałem [wczoraj](/lekkie-przesilenie) podróż nim to zdecydowanie lepsze doświadczenie. Tym razem krótkie, bo podróż z **Brooklyn Heights** na **Wall Street** trwa krócej niż napisanie tego akapitu. Prosto z pokładu wychodzi się na najbardziej znaną i najbardziej znienawidzoną ulicę Stanów. Jądro ciemności. Siedlisko zła. Finansowe centrum świata. Czy też po prostu miejsce gdzie znajduje się Nowojorska Giełda. Jak tam jest? Nie widać już protestów. Ulice są bardzo wąskie, budynki strzeliste. Do tego tłumy ludzi. Naprawdę tłumy. Do normalnego gwaru dochodzą hałasy robót budowlanych oraz przepychający się turyści. Jest ciężko, zdecydowanie miejsce nie dla mnie.
+
+![front](IMG_E4339.JPG)
+![front](IMG_E4336.JPG)
 
 Chcesz zrobić zdjęcie "Charging Bull"? Stoisz w kolejce.
 
+![front](IMG_E4347.JPG)
+
 Chcesz wejść na rejs do statuy wolności? Stoisz w kolejce. **K O L E J C E**
+
+![front](IMG_4345.JPG)
 
 No nie podobało nam się. Nastraja to miejsce się tak, że można się pokłócić próbując sobie wyjaśnić, że trzeba skręcić w prawo. Jądro ciemności.
 
 Ale za to zjedliśmy wreszcie Hot Doga. Udało nam się zlokalizować budkę, która była czysta, nie śmierdziała przypalonym tłuszczem. Prawdziwa kiełbasa, fajna bułka i ciekawostka - kapusta kiszona. Mniam.
 
+![front](IMG_E4332.JPG)
+
 Nieco zmęczeni tym gwarem ruszyliśmy dalej. Minęliśmy **Battery Park**. Park jak park, Nowy Jork ma ładniejsze. Poczłapaliśmy w stronę **World Trade Center**. Te miejsce robi wrażenie. Czarny pomnik, na którym wypisano imiona i nazwiska poległych strażaków. Woda która z niego ścieka prosto w otchłan. Dotyka prosto w serce. Dodatkowo sporo przestrzeni. Muzeum. Nowy budynek stojący na miejsce dwóch dawnych. Ładnie, ale jednak to pomnik robi największe wrażenie. Olbrzymie.
+
+![front](DQQM1937.JPG)
+![front](EFPN1469.JPG)
+![front](IMG_E4353.JPG)
+![front](LNVB8176.JPG)
 
 Ruszyliśmy zatem GreenWitch Street w stronę **TriBeCa**. Czyli dzielnicy, która sama się opisuje - **Tri**angle **Be**low **Ca**nal. Tutaj już się zaczęło robić już spokojniej, mniej gwarno. Znowu plan filmowy nam przeszkodził. Tym razem w kawiarni. Jak co dzien - królestwo za kawę! Bardzo ładna zróżnicowana architektura.
 
+![front](IMG_E4357.JPG)
+![front](IMG_E4359.JPG)
+
 Jako, że rzeczą wiadomą jest, że nie lubimy naszych stóp i każemy im się męczyć to poszliśmy dalej. Punkt kolejny **Soho**. Coś dla Mizerii i Alutki. Odnalazłyby się tutaj. Tutaj zdaje się latały dziewczyny z **Seksu w wielkim mieście** na swoje legendarne zakupy. Mnóstwo ekskluzywnych marek, pełno kobiet (szczególnie azjatek). Zabudowa też przyjemna, ale jednak nie mój klimat. Trochę tak jednak zbyt zimno. Nawet nasz aparat powiedział nie. Rozładował się gdy chciałem zrobić zdjęcie sklepu Burberry. 
+
+![front](IMG_E4362.JPG)
+![front](IMG_E4363.JPG)
 
 Z Soho ruszyliśmy do **Little Italy**. Dzielnicy, oryginalnie, włoskiej. Tutaj kręcili Ojca Chrzestnego, tutaj znajduje się podobno pierwsza pizzeria w Stanach. Tutaj też zjedliśmy też obiad w knajpce wyglądających jak z Sopranos. Nieco brudna, grubi włosi za barem, ale spaghetti bolognese (Diana) i z klopsikami (ja) było niezłe. Nie wybitne, ale niezłe. Co do samej dzielnicy, to obecnie jest wchłanana przez ChinaTown. Więcej tutaj chiskich napisów niż włoskich. Nie czuć tego włoskiego klimatu. No może prawie, spotkaliśmy Panią, z kruczoczarną okrągłą trwałą nawijającą głośno po włosku. Wypisz wymaluj mama Niani Frani.
 
+![front](IMG_E4369.JPG)
+![front](IMG_E4379.JPG)
+
 Z Małą Italią sąsiaduje **Nolita**. Hipsterska dzielnica. Mnóstwo knajpek. Diana oczywiście musiała się napić Matchy. W **Cha Cha Matcha**. Zdaje się modne miejsce. Różowiutkie. Ale Matcha smakowała. Ja wreszcie wypiłem w sąsiedniej kawiarni, dobrą mocną kawę. Pierwszą w USA. Amerykanie piją kawę dużo słabszą. Pewnie dlatego, że chłepcą ją hektolitrami. Jak chcesz normalną kawę to powiedz, że **Americana with Milk. Whole Milk**. To zagwarantuje Ci, że nie dostaniesz mleka z orzechów makadamii, laskowych, bez tłuszczowego czy też sojowego. Tak. Przy kawie uzewnętrznia się też inny zwyczaj. Dawanie napiwków. Tutaj nawet jak kupujesz kawę na wynos i płacisz kartą to powinieneś dać napiwek. Kawa 3 dolary, napiwek 1. Co kraj, to obyczaj.
+
+![front](IMG_E4370.JPG)
 
 Następnie ruszyliśmy w stronę najdroższej sypialni Manhattanu, czyli **West Village**. Minęliśmy po drodze **Washington Square Park**. Przysiedliśmy na ławce dając odpocząć nogom. Posłuchaliśmy ulicznych Jazzmanów. Nie siedzieliśmy długo, bo chłodny wiaterek mimo słonca dawał się we znaki. Minęliśmy eksluzywne kamienice otaczające plac, podreptaliśmy dalej. 
 
+![front](IMG_E4380.JPG)
+![front](IMG_E4385.JPG)
+
 Weszliśmy do **Greenwich Village**. Urokliwa dzielnica. Kamienice z schodami przeciwpożarowymi. Spokojniej, ciszej, ale też kolorowo. Bo jest to dzielnica tęczowa. Tutaj znajduje się **Gay Street**, lokale i pomnik LGBT. 
+
+![front](IMG_4394.JPG)
+![front](IMG_E4401.JPG)
 
 Idąc dalej przeszliśmy płynnie w **West Village**. Tutaj widać już spokój, stateczność. Diana mówi, że chciałaby tu mieszkać. Chyba trzeba zakasać rękawy. Żarty na bok, jest tu naprawdę ładnie. Ciekawostka, mimo, że do Haloween jeszcze 2 tygodnie, to bardzo dużo domów już przybranych w wapiry, klauny z piekła rodem. Mnie najbardziej zauroczył szkieletor pieska. Nice.
 
+![front](IMG_E4407.JPG)
+![front](YKJO4896.JPG)
+
 Mieliśmy już wracać metrem, ale Diana namówiła mnie na podejście do brzegu rzeki Hudson. Ja się nieco ociągałem, "bo w koncu juz widzieliśmy". Ale nie żałuję, że dałem się namówić. Weszliśmy w **Hudson River Park**. Oczywiście jest to park w rozumieniu amerykanskim. Tak naprawdę to deptak. Urokliwy i z drzewami, ale jednak deptak. Mnóstwo biegaczy, żywa atmosfera. No i zachód słonca z widokiem na drugi brzeg rzeki. Genialnie.
 
+![front](IMG_E4412.JPG)
+
 Idąc w stronę metra, niechcący gubiąc się lekko doszliśmy ponownie do **Chelsea**. Szkorzystaliśmy i zobaczyliśmy wieczorową porą oświetlony **Highline**. Też polecam, inne wrażenie niż w dzien.
+
 
 Tym samym domknęliśmy tą samą klamrą nasz dzien co poprzedni. 
 
