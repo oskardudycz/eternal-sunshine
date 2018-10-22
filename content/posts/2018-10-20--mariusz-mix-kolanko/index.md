@@ -55,7 +55,7 @@ Na pewno łatwo nie było wstać na następny dzien, a musieliśmy to zrobić ni
 Do Bostonu wróciliśmy koło 15. Pogoda była nieco bardziej sprzyjająca. Stwierdziliśmy, że dokonczymy to co zaczęliśmy wczoraj, czyli **Szlak Wolności**. Pozostała część okazała się nawet bardziej malownicza. Spacer nadbrzeżem, przejście przez stary, chybotliwy most (Diana z zamkniętymi oczami) i dotarcie do **Charlestown**. Piękna kolonialna dzielnica Bostonu. Kolorowe domki, pagórki, spokój cisza, a na samym szczycie obelisk wielkiej bitwy o niepodległość z Anglikami. Przegranej. Wspominałem już o marketingu, nie?
 
 ![front](IMG_4568.JPG)
-![front](OAKV2044.JPG)
+![front](IMG_4555.JPG)
 ![front](KALY3873.JPG)
 
 Z górki zeszliśmy do portu gdzie cumuje **USS Constitution**. Cytując Wikipedię. "Amerykańska trójmasztowa fregata o kadłubie wykonanym z drewna dębowego. Jest najstarszym pływającym i pozostającym w czynnej służbie okrętem świata". Wybudowana w 1795 roku, oczywiście w Bostonie. Ma nawet armaty. 
