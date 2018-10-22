@@ -49,6 +49,7 @@ Z promu wysłaliśmy obiecane kartki pocztowe. Ludzie ciągle to kochają! I rus
 
 Dzien zakonczyliśmy kolacją w **Charrito's Weehawken**. Świetne meksykanskie jedzenie i **G E N I A L N Y  W I D O K**. Dla niego samego warto tam zjeść. Dodając do tego ręcznie robione przy stolicu Guacamole oraz przepyszny flan - naprawdę nie można dużo chcieć więcej.
 
+![photo](IMG_E4478.JPG)
 ![photo](IMG_4473.JPG)
 
 Tak to właśnie zakonczył się nasz pobyt w Nowym Jorku. Pojawiła się lekka niepewność czy dalej będzie równie fajnie. Lekki smuteczek z opuszczenia Nowego Jorku. Coś się konczy, coś się zaczyna. Cel następny Boston i Manchester. Ale o tym w kolejnym wpisie.
