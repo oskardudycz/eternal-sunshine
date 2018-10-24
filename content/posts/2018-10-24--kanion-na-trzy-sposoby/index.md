@@ -49,6 +49,6 @@ Po dojechaniu do Kanionu Antylopy okazało się, że musimy czekać dwie godziny
 
 Sama trasa trwa między godzinę, a półtorej. Czy "urywa dupę"? Powiem tak, widząc już kilka imponujących jaskin wcześniej (bo to bardziej przypomina jaskinię niż kanion) mnie nie urwało, ale robi na pewno niesamowite wrażenie. Wychodzą niesamowite zdjęcia. Klimat jest świetny. Szczególnie w słoneczną pogodę. Nie będę strzępił języka, obejrzyjcie sobie sami. Rosjanka zwiedzająca kanion w naszej grupie, mówiła że to jej najpiękniejsze miejsce jakie widziała w życiu. Na nas większe wrażenie zrobił Grand Canyon, który ma większy rozmach. Jest to jednak miejsce, które jest na pewno niespotykane i które polecimy każdemu.
 
-Po wyjściu, szybki lunch w busie i przejazd do słynnego **Horseshoe Bend" - podkowa. Tuaj rzeka Colorado zrobiła swoim meandrem piękny łuk. Jest to jeden z najpiękniejszych i najbardziej znanych fragmentów Wielkiego Kanionu. Tutaj nam już dupę urwało. Tego się naprawdę nie da opisać.
+Po wyjściu, szybki lunch w busie i przejazd do słynnego **Horseshoe Bend** - podkowa. Tuaj rzeka Colorado zrobiła swoim meandrem piękny łuk. Jest to jeden z najpiękniejszych i najbardziej znanych fragmentów Wielkiego Kanionu. Tutaj nam już dupę urwało. Tego się naprawdę nie da opisać.
 
 Wracając mieliśmy okazję obserwować zachód słonca na pustyni. Nie ma zasięgu, nie ma Internetu. Nie trzeba nic mówić. Po prostu siedzisz, patrzysz, nawet nic nie myślisz. Czujesz się jak szczęściarz.
