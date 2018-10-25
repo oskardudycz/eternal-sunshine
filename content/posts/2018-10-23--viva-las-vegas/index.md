@@ -28,7 +28,7 @@ Odespaliśmy, grzebaliśmy się nieco - wymęczeni długim lotem. Poza tym po co
 Jest taka [scena w Edim](https://youtu.be/4qWt9HvtNvo?t=755) gdzie Jureczek mówi "Tu jest raj! Wszystko tu jest! Pralka, telewizor... to nie raj?", Edi odpowiada "A co to za raj, który dzisiaj jest, a jutro go nie ma". Tak też jest w Vegas. 
 
 ![photo](IMG_4765.JPG)
-![photo](IMG_4760.JPG)
+![photo](IMG_4761.JPG)
 
 Cofnijmy się nieco w czasie. W czasach faraonów i Cezara już byliśmy, tym razem nieco bliżej - 1931 rok. Od dwóch lat trwa Wielki Kryzys. Rozpoczęta zostaje budowa tamy Hoovera. Zwanej wtedy jeszcze tamą Boulder (od nazwy pobliskiego miasteczka). Jedną tamę zaczęto budować, drugą zlikwidowano. W tym samym roku w Las Vegas zalegalizowano hazard. Ludzie muszą jakoś zabić czas, rozerwać się - grają. A jest ich coraz więcej: inżynierowie i budowniczy tamy, turyści, później też naukowcy i pracownicy pomocniczy uczestniczący w projekcie Manhattan (tak, tym od bomby atomowej).
 Inne wydarzenie 1931 roku - Al Capone został skazany. Koniec kariery. Rok 1933 - koniec prohibicji. Wschodnie wybrzeże robi się coraz ciaśniejsze i coraz trudniejsze do działania dla mafii. Zachód stoi otworem. Kawał tortu do podziału.
