@@ -99,4 +99,4 @@ Po wyjściu, szybki lunch w busie i przejazd do słynnego **Horseshoe Bend** - p
 
 Wracając mieliśmy okazję obserwować zachód słonca na pustyni. Nie ma zasięgu, nie ma Internetu. Nie trzeba nic mówić. Po prostu siedzisz, patrzysz, nawet nic nie myślisz. Czujesz się jak szczęściarz.
 
-![photo](GEHG5889.JPG)
+![photo](IMG_4907.JPG)
