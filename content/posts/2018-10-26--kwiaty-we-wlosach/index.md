@@ -17,6 +17,7 @@ Ludzi z potarganymi kwiatami zobaczyliśmy już po przyjeździe. Lądowaliśmy p
 Ciężko jest oceniać będąc dosłownie przelotem w USA, żeby oceniać trzeba by było trochę tutaj pożyć. Nie znam się, to się wypowiem. To co rzuca się mocno, szczególnie w San Francisco, to nierówności społeczne. Ludzie nauczyli się nie widzieć **bezdomności**. Nie trzeba wchodzić w ciemne, szemrane uliczki, żeby zobaczyć prowizoryczne legowisko zrobione przez bezdomnego. Dziwacy chodzący, gadający do siebie. Kolesie w metrze wygłaszający mowy o tym, że jesteśmy sterowani mikrofalami z komórek. Poszarpaniec siedzący na środku ruchliwego chodnika wstrzykujący sobie coś w kolano. Niepełnosprawni ludzie na wózkach, wożący na nich swój cały dobytek. W Nowym Jorku było tego dużo, ale tutaj w San Francisco jest nawet więcej. Słonce świeci, wiaterek wieje, grupa ludzi uprawia fitness na placu przed ratuszem, a tuż obok śpi człowiek pozawijany w łachmany. Stabilna temperatura tutaj zdaje się sprzyjać włóczęgostwu, zimą się nie zamarznie. 
 
 ![photo](PA250936.JPG)
+![photo](PA250912.JPG)
 
 Nierówności nie dotyczą tylko samej skrajnej biedy. Życie tutaj nie jest lekkie. Imigranci zbudowali ten kraj swoją ciężką pracą. Teraz dalej muszą ciężko zapracować na to by być regularnym obywatelem. Szczególnie w dużych miastach. Nasza przewodniczka opowiadała, że poza tą pracą jest również wieczorami krupierką w kasynie. Zarówno w Bostonie jak i San Francisco widzieliśmy strajk pikiety pracowników pod hotelami domagającymi się ludzkich zarobków. Hasłem przewodnim było wymowne "Jedna praca powinna być wystarczająca". Długie dojazdy do pracy, długa praca, tak to wygląda. W USA jak nie pracujesz to jesteś w pewnym ciemnym miejscu. Nie masz za co opłacić ubezpieczenia, nie masz za co zapłacić kredytu, wylatujesz poza nawias, a razem z Tobą kwiaty z Twoich włosów.
 
@@ -31,7 +32,6 @@ Także kraje kapitalistyczne mają swoje minusy, ale chodzi o to, żeby te minus
 Mknąc po górkach, mijając podobno najstarsze Chinatown w stanach, Lombard Street docieramy do **Fisherman's Warf**. Jest to dzielnica portowa, ciągle czynna i działająca, ale na wpół turystyczna. Znajdziesz tutaj sporo knajpek, a w nich lokalny przysmak - **Clam Chowder**. Jest to pożywna zupa z mięczaków, na śmietanie, podawana tutaj tradycyjnie w chlebku (jak nasz żurek). Każda restauracja szczyci się tutaj tym, że podaje najlepszą. My osobiście polecamy zjeść ze street foodowych miejscówek. Można zamówić sobie je niemalże na ulicy - fajny klimat, zupa wyśmienita. Szczególnie na wieczorny chłodek.
 
 ![photo](IMG_4918.JPG)
-![photo](PA250912.JPG)
 
 Zanim jednak ogrzaliśmy się przy chowder zrealizowaliśmy jeden z najważniejszych punktów naszego wyjazdu. W każdym razie dla Diany. Każdego możliwego amerykanina, z którym rozmawialiśmy pytała się o to, czy w San Francisco można zobaczyć **uchatki**. Okazało się, że nie można. Ale można za to zobaczyć **lwy morskie**. Siedzą sobie one w dużej liczbie właśnie w Fisherman's Warf, **Pier 39**. Wesołe to zwierzęta, hałaśliwe, nieco śmierdzące. Część z nich byczy się na pomostach, część bawi się w spychanie się z nich. Super sprawa, Diana była w niebowzięta.
 
