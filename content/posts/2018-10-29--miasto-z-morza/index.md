@@ -17,25 +17,57 @@ Pierwszą zasadą poruszania się komunikacją miejską jest: unikać autobusów
 
 Wracając do naszych przejazdów. Dzien po naszym sprincie turystycznym postanowiliśmy poobcować nieco z przyrodą. Pierwotnym naszym planem był Park Yosemite, ale ostatecznie zrezygnowaliśmy bo cena wycieczki była duża, a nam aż tak nie zależało. Chcieliśmy jedynie zobaczyć sekwoje, ale nie aż tak bardzo. Powetowaliśmy sobie to wyprawą na **Lands End**. Jest to cypel umieszczony w północno-zachodniej części San Francisco. Znajduje się tam nieco dziki i mniej uczęszczany szlak turystyczny. Dostaliśmy się tam autobusem, ja na gapę, bo nie miałem gdzie doładować karty. Autobus zatrzymywał się chyba na każdym skrzyżowaniu i podróż trwała prawie godzinę... Ale było warto.
 
+![photo](IMG_4965.JPG)
+![photo](IMG_4967.JPG)
+
 Podróż zaczyna się przy muzeum zwanym **Legion of Honor**. Ciekawy klasycystyczny budynek, cyknęliśmy fotki, poszliśmy dalej - nie był to cel naszej wyprawy. Minęliśmy efektownie położone pole golfowe i rozpoczęliśmy naszą właściwą trasę. Granie w golfa mając widok na Golden Gate i zatokę musi być w koncu efektowne.
+
+![photo](IMG_E4966.JPG)
+![photo](IMG_E4968.JPG)
 
 Szlak do Lands End biegnie góra dół, dół góra. Mnóstwo chodzenia schodkami, momentami czujesz się jak na zawodach wbiegania na ostatnie piętro jakiegoś wieżowca. Tylko bardziej niebezpieczną. Klify są strome i wysokie, w niektórych miejscach ograniczone linami i tabliczkami ostrzegającymi, że ten fragment jest zamknięty, bo ludzie zdążyli już tam pospadać. No ale ogólnie trasa nie jest straszna, polecam każdemu. Kontrastuje ze zgiełkiem miasta, przyroda, piękne widoki, piękne plaże. 
 
+![photo](IMG_E4969.JPG)
+![photo](IMG_E4963.JPG)
+![photo](IMG_E4962.JPG)
+
 Na samym Lands End znajdziesz charakterystyczny ułożony z kamyków mini labirynt oraz piękny widok na zatokę. 
+
+![photo](IMG_E4961.JPG)
 
 Polecamy też zejść na **Mile Rock Beach**. Zgodnie z nazwą olbrzymie kamienie tworzą tam krajobraz niczym z kosmosu.
 
+![photo](IMG_4960.JPG)
+![photo](IMG_E4961.JPG)
+
 Wracając na szlak można pójść dalej minąć legendarny **Cliff House** - budynek, od którego zaczyna się San Francisco i dotrzeć do **Ocean Beach**. Długa, szeroka i piaszczysta plaża. Otworzyliśmy tam piwko, zagryźliśmy nachosami i cieszyliśmy się chwilą. Nie trwało to niestety długo, bo zaczęło się ochładzać i szybko dopadła nas słynna mgła z San Francisco. Nie zostało nam nic innego jak zmoczyć dłonie w Pacyfiku i potłuc się autobusem z powrotem. Mimo nieprzyjemności komunikacji miejskiej był to naprawdę fajny dzien.
 
+![photo](cover.JPG)
+![photo](IMG_4970.JPG)
+
 Kolejny dzien również spędziliśmy blisko morza. Rozpoczęliśmy od podróży tramwajem, która prawdopodobnie trwała tyle, że na piechotę byśmy dotarli szybciej. Gdzie podróżowaliśmy? Do wspomnianego już w [poprzednim wpisie](/kwiaty-we-wlosach) **Fisherman's Warf**, a z niego do **Alcatraz**. Alcatraz widzieliśmy już z brzegu, jest to punkt krajobrazu, który nie da się zignorować patrząc z perspektywy San Francisco. Tak samo w drugą stronę. Podobno możliwość zobaczenia San Francisco przez malutkie okienka spacerniaka była dla samych więźniów dodatkową karą. Widzieli ciągle co tracą. Mieli to wszystko niemalże na wyciągnięcie ręki, ale jednak ciągle nieosiągalne.
+
+![photo](IMG_4973.JPG)
 
 Historia Alcatraz dzieli się na trzy główne etapy. W pierwszym ta kamienna wyspa, zwana oryginalnie "Wyspą ptaków wodnych" została zamieniona w siedzibę fortu wojskowego. Miał on w czasach gorączki złota, potem wojny z Hiszpanami (o Meksyk) oraz Wojny Secesyjnej bronić zatoki oraz samego San Francisco. W szczytowej formie miał on 105 dział. Czas jednak mijał, garnizon nie był specjalnie unowocześniany. Przeprowadzono test, w którym armaty miały ostrzeliwac statek. Na 400 kul nie trafiono ani jedną. Ostatecznie wojskowi doszli do wniosku, że szansa na to, że San Francisco zostanie jest niemalże zerowa, a koszty zbyt duże i przekwalifikowali je na więzienie wojskowe. Ostatecznie w roku 1933 zostało przekwalifikowane na Federalny Zakład Penitencjarny. Specjalny zakład karny - dla najgroźniejszych przestępców. Siedzieli tam m.in. Al Capone, "Birdman", George "Machine Gun" Kelly i inni zwyrodnialcy. Na dzien dobry słyszeli:
 
 "Witamy w Alcatraz. Masz prawo do jedzenia, ubrania, schronienia i opieki medycznej. Inne rzeczy które otrzymasz są przywilejem".
 
+![photo](IMG_4974.JPG)
+![photo](IMG_E4977.JPG)
+![photo](IMG_E4978.JPG)
+![photo](IMG_E4979.JPG)
+
 Szczególnie w początkowych latach więźniowie nie mieli lekko. Byli traktowani tak jak na to zasłużyli swoim postępowaniem. Zwykle nawet gorzej. Mimo tego, że ucieczka była niemożliwa, to niektórzy próbowali. Sforsowanie murów, następnie zimnych i mocnych prądów zatoki było praktycznie niemożliwe. Nieliczni jednak próbowali. Większość z nich została pojmana, lub zginęła. Najbardziej efektowna była ucieczka z 1962 roku sportretowana w słynnym filmie z Clintem Eastwoodem oraz będąca inspiracją dla Skazanych na Shawshank. Do dziś nie potwierdzone jest czy trzem uciekinierom się udało czy nie. Niektórzy twierdzą, że żyją w Brazylii. Możesz ich poszukać. Nagroda 3 miliony dolarów ciągle do zgarnięcia.
 
+![photo](IMG_E4980.JPG)
+![photo](IMG_E4981.JPG)
+![photo](IMG_E4982.JPG)
+![photo](IMG_E4983.JPG)
+
 Więzienie zamknięto w roku 1963 jako za drogie. 
+
+![photo](IMG_E4976.JPG)
 
 Ostatnim etapem i najmniej znanym etapem jest indianska okupacja wyspy. Tak, dokładnie. I to nie w czasach dzikiego zachodu tylko w latach 1968-1970. Grupa aktywistów z różnych plemion chciała utworzyć na opuszczonej wyspie swoją enklawę. Uznali, że skalista wyspa, bez wody, bez jedzenia nie będzie białemu człowiekowi potrzebna, a im da szansę zamanifestowania w głośny sposób swoich rządan. Nie muszę dodawać, tego że San Francisco było w tamtym czasie stolicą hippisowskich idei. Sami dzisiaj przyznają, że byli bandą dzieciaków żyjącą nieralnymi marzeniami. Dzieciaków wytrwałych, okupowali wyspę przez 19 miesięcy przy cichym przyzwoleniu prezydenta Nixona. Ostatecznie zostali z niej usunięci przez FBI w roku 1970. Czy ich wysiłek poszedł na marne? Nie do konca, zainspirował on innych aktywistów do większej odwagi. Pokłosiem tego było złagodzenie stanowiska rządu USA i przydzielenie im większych swobód, autonomii oraz [rezerwatów](/kanion-na-trzy-sposoby). Znaki ich nieposłuszenstwa widoczne są do dziś nie tylko na budynkach w Alcatraz.
 
@@ -47,9 +79,18 @@ Pobyt skonczyliśmy tak jak zaczęliśmy.
 
 Pożegnaliśmy się z lwami morskimi w Pier 39.
 
+![photo](IMG_E4984.JPG)
+
 Weszliśmy pod górę Lombard Street. Tym razem w dzien.
 
+![photo](IMG_E4985.JPG)
+![photo](IMG_E4986.JPG)
+![photo](IMG_E4987.JPG)
+![photo](IMG_E4988.JPG)
+
 Wróciliśmy naszym tramwajem, czy też kolejką liniową do hostelu.
+
+![photo](IMG_E4989.JPG)
 
 Kolejny dzien to ponownie pobudka o 5:30. Uber na lotnisko i lot do Los Angeles.
 
