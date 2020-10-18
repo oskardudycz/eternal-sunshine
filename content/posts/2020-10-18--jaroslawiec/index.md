@@ -22,7 +22,7 @@ Podam tylko jeden przykład: pieluchy dostępne tylko w sklepach internetowych p
 Wiec ta opcja z pakowaniem póki co nas nie dotyczy.
 Zaczynamy wiec pakowanie.
 Dużo tego.
-Podzial ról przy pakowaniu prawie od zawsze taki sam, ja wybieram co bierzemy, gromadzę w jednym miejscu a Oskar tak to jakoś zawsze kompresuje , niemalże próżniowe pakowanie, że zawsze to jakoś zgrabnie wygląda. 
+Podzial ról przy pakowaniu prawie od zawsze taki sam, ja wybieram co bierzemy, gromadzę w jednym miejscu a Oskar tak to jakoś zawsze kompresuje, niemalże próżniowe pakowanie, że zawsze to jakoś zgrabnie wygląda. 
 Tym razem nieco mniej ale chyba jednak nie najgorzej . Taką opinie wydała jednak mama dwójki dzieci podróżująca rok w rok nad morze, więc chyba się zna.
 Tu fota
 
@@ -31,11 +31,11 @@ Tu fota
 
 Zapakowani po dach ruszamy.
 Pora wyjazdu i tu MaDki się rozpisują na blogach, za dnia czy w nocy, na pierwszą czy ostatnią drzemkę itp.
-Dystans nie mały bo jakieś 450 km wiec wzorując się na ostatniej podróży, startujemy zaraz z rana po porannej toalecie tj g. 8
+Dystans nie mały bo jakieś 450 km wiec wzorując się na ostatniej podróży, startujemy zaraz z rana po porannej toalecie tj g. 8:00.
 Matka jedzie z tyłu, decyzja obojga nas.
 Podróż raczej bez komplikacji raczej z miłą nawet niespodzianką bo na pierwszym postoju spotykamy znajomych wracających do swojego domu.
-Zabawa - drzemka- postój na dość nietypowej stacji tak jakby czas się na niej zatrzymał , ekspres do kawy się zepsuł ale zasada włacz wyłącz urządzenie nie zawiodła.
-Kanapka domowa , kawa na krawężniku, rozprostowanie nóg i ruszamy dalej , druga drzemka , zabawa i już na miejscu.
+Zabawa - drzemka- postój na dość nietypowej stacji tak jakby czas się na niej zatrzymał, ekspres do kawy się zepsuł ale zasada włacz wyłącz urządzenie nie zawiodła.
+Kanapka domowa, kawa na krawężniku, rozprostowanie nóg i ruszamy dalej, druga drzemka, zabawa i już na miejscu.
 
 ![3](3.JPG)
 ![4](4.JPG)
@@ -49,12 +49,12 @@ No ładnie, nie powiem.
 ![6](6.JPG)
 
 I na tym ta ładność Jarosławca chyba się kończy.
-Chyba czy może na pewno ?!
+Chyba czy może na pewno?!
 Jako, że nasz rytm dnia dyktowany jest głównie przez naszą Małą Obywatelkę dotychczasowa forma wakacji zmienia wymiar .
 Jak to pogodzić?
-Odpocząć a zarazem wykonywać codzienne rytuały!? Czy da się ?
-Raczej słabo , no chyba, że jeszcze się tego albo nauczymy albo Obywatelka nam w tym pomoże i nieco zmieni swoje potrzeby np. Przeskakując na jedną drzemkę w ciagu dnia.
-We will see
+Odpocząć a zarazem wykonywać codzienne rytuały!? Czy da się?
+Raczej słabo, no chyba, że jeszcze się tego albo nauczymy albo Obywatelka nam w tym pomoże i nieco zmieni swoje potrzeby np. przeskakując na jedną drzemkę w ciagu dnia.
+We will see.
 Ten kto nas zna albo obserwuje wie że trzaskamy kilometry jak nienormalni.
 Drzemki Obywatelki mają swoje wytyczne:
 ⁃ musi być ruch, czy to wózek czy jak zostało sprawdzone auto
