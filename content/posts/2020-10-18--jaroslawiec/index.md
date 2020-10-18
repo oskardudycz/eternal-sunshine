@@ -2,7 +2,7 @@
 title: Polski Dubaj
 category: "polskie morze"
 cover: cover.png
-author: oskar dudycz
+author: diana dudycz
 ---
 
 Pierwsze wakacje czas start
