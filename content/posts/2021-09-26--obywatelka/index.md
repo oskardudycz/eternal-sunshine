@@ -1,6 +1,6 @@
 ---
 title: Obywatelka
-category: "polskie morze"
+category: "podróże"
 cover: cover.png
 author: diana dudycz
 ---
